@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @I-am-Shizuka
+- 👀 I love so much video games !!!
+- 🌱 I’m currently learning japanese
+- 📫 Im online on discord : 𝑖𝑚✞sʜɪᴢᴜka#9473
